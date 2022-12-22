@@ -1,4 +1,4 @@
-## AndysProxies.github.io
+## Welcome To Andy's Proxies!
 
 # Games, Proxies, and More!
 
